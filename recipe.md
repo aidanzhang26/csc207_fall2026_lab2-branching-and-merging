@@ -50,9 +50,9 @@ This recipe makes a three-layer celebration cake with a filling between each lay
 
 7. Let the cakes cool in their pans for 10 minutes, then transfer them to a wire rack to cool completely.
 
-8. Prepare the filling by combining [FILLING] with the raspberry preserves with the fresh raspberries.
+8. Prepare the filling by combining the chocolate with the raspberry preserves with the fresh raspberries.
 
-9. Prepare the frosting by beating the butter until creamy. Gradually add the powdered sugar and vanilla, followed by [FROSTING FLAVOUR].
+9. Prepare the frosting by beating the butter until creamy. Gradually add the powdered sugar and vanilla, followed by raspberry frosting.
 
 10. Place the first cake layer on a serving plate and spread half of the filling over the top.
 
